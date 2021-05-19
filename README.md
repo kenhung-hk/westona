@@ -1,1 +1,0 @@
-# westona.github.io
